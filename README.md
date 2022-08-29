@@ -1,2 +1,0 @@
-# OpenClassroomsProjekt
-# OpenClassroomsProjekt
